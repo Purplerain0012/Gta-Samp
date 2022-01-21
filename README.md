@@ -1,2 +1,2 @@
-# Gta-Samp
-Isso eh um comeco de um server
+# rs eu sempre estrei a um passo de vc
+hahahah
